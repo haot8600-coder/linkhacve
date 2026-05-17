@@ -1,0 +1,23 @@
+# Director turns to childhood memories for wartime epic（[quickq电脑版](https://quickq-vnp824.com.cn)）
+
+ApopularTVseriesretellingtheChinesepeoplesresistanceagainstJapaneseinvaders,EightThousandMilesofCloudandMoon,starsactorWangYangasamilitaryofficerwholosesfaithintheKuomintangandjoinstheChineseCommunistParty-ledNewFourthArmy.[PhotoprovidedtoChinaDaily]FordirectorZhangYongxin,oneofhismostunforgettablechildhoodmemorieswaslisteningtoheroicstoriestoldbyhisgrandparents,wholivedabout30kilometersfromthebattlefieldofTai,whichmarkedapivotalChinesevictoryagainstJapaneseinvaders,becameararesourceofhopeforthenationduringwartime."Mygrandmothertoldmethatduringthebattle,atnightshecouldhearnonstopartilleryfireinthedistance,likebeanspoppinginapan,",thenteachingataprimaryschool,wasorderedbytheKuomintanggovernmenttojointeachersandstudentsinclearingthebattlefieldafterthefightingended.",therewerepilesofsoldiersbodies,"Zhangsaid,addingthat(EightThousandMilesofCloudandMoon),a40-episodetelevisionseriessetduringtheChinesePeoplesWarofResistanceAgainstJapaneseAggression(1931-45),,,achefwhoseonlywishistosurvive,,brigadecommanderZhangYunkuifindshimselfdrivenint,Zhangentru,onlytobefalselyaccusedbytheKuomintangofbeinga"fleeinggeneral".Unabletoclearhisname,helaterencountersacommanderoftheNewFourthArmy,whorekindleshishopea,throughatwistoffate,MengendsupcaringforZhangsfamilyandenduringhardshipsalongsideZhangswife,,bothgraduallycommitthemselvestotherevolutionarycause.¡£（[QuickQ VPN下载](https://quickq-vnp886.com.cn)）
+
+**立即下载体验：[quickq电脑版](https://quickq-vnp404.com.cn)**
+
+## ApopularTV（[quickq下载](https://quickq-vnp002.com.cn)）
+
+ApopularTVseriesretellingtheChinesepeoplesresistanceagainstJapaneseinvaders,EightThousandMilesofCloudandMoon,starsactorWangYangasamilitaryofficerwholosesfaithintheKuomintangandjoinstheChineseCommunistParty-ledNewFourthArmy.[PhotoprovidedtoChinaDaily]FordirectorZhangYongxin,oneofhismostunforgettablechildhoodmemorieswaslisteningtoheroicstoriestoldbyhisgrandparents,wholivedabout30kilometersfromthebattlefieldofTai,whichmarkedapivotalChinesevictoryagainstJapaneseinvaders,becameararesourceofhopeforthenationduringwartime."Mygrandmothertoldmethatduringthebattle,atnightshecouldhearnonstopartilleryfireinthedistance,likebeanspoppinginapan,",thenteachingataprimaryschool,wasorderedbytheKuomintanggovernmenttojointeachersandstudentsinclearingthebattlefieldafterthefightingended.",therewerepilesofsoldiersbodies,"Zhangsaid,addingthat(EightThousandMilesofCloudandMoon),a40-episodetelevisionseriessetduringtheChinesePeoplesWarofResistanceAgainstJapaneseAggression(1931-45),,,achefwhoseonlywishistosurvive,,brigadecommanderZhangYunkuifindshimselfdrivenint,Zhangentru,onlytobefalselyaccusedbytheKuomintangofbeinga"fleeinggeneral".Unabletoclearhisname,helaterencountersacommanderoftheNewFourthArmy,whorekindleshishopea,throughatwistoffate,MengendsupcaringforZhangsfamilyandenduringhardshipsalongsideZhangswife,,bothgraduallycommitthemselvestotherevolutionarycause.¡£
+
+## 相关下载
+
+- [QuickQ VPN](https://quickq-vnp028.com.cn)
+- [QuickQ VPN](https://quickq-vnp515.com.cn)
+- [quickq电脑版](https://quickq-vnp557.com.cn)
+- [quickq](https://quickq-vnp426.com.cn)
+- [quickq官网下载](https://quickq-vnp373.com.cn)
+- [quickq](https://quickq-vnp868.com.cn)
+- [QuickQ VPN官网](https://quickq-vnp159.com.cn)
+- [quickq官网下载](https://quickq-vnp880.com.cn)
+- [quickq](https://quickq-vnp606.com.cn)
+- [QuickQ 官方网站](https://quickq-vnp644.com.cn)
+- [QuickQ VPN](https://quickq-vnp111.com.cn)
