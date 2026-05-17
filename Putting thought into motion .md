@@ -1,0 +1,23 @@
+# Putting thought into motion（[todesk官网](https://www.oohlalamanufacturing.com)）
+
+DirectorandchoreographerWangYabincombinescontemporaryandtraditionaldancemovestotellthelifestoryofthephilosopherWangYangming.[PhotoprovidedtoChinaDaily]IntherollinghillsofGuizhouprovince,ayoungscholaroncefoundhimselfexiled,smostinfluentialthinkers:WangYangming(1472-1529),,anoriginaldancedramadirectedandchoreographedjingonSaturdayandSundayaspartofitseight-monthnationwidetour."IwantedtobringWangYangmingtolifeonstage,"WangYabinsays,"toshowhistrials,hisenlightenment,"ThedramaretracesapivotalchapterinthelifeoftheMingDynasty(1368-1644),bornintodaysNingbo,Zhejiangprovince,thenaminorofficialinthegovernment,wasdemotedtoaremotepostinLongchang,Guizhouprovince,,knownasa"political,culturalandeconomicwasteland",,hehadtosolverealproblems,,showingthathistheorieswerentjusttalk¡ªcials,,disciplineandmoraleducationamonglocaltroopsandofficials."Ispenttwoweeksreflecting,"WangYabinrecalls."IstudiedWangYangmingswritings,spokewithfriendswhoadmirehim,;oneofthebrightestperiodsinhislifehappenedinLongchang,anditbecamethefocusofthechoreography."HerresearchledhertoGuizhouprovince,wheresheimmersedherselfintheregionslandscapesandculture."ThebeautyandsimplicityofLongchangrelaxedmeandopenedmyimagination,"shesays."ItriedtoimagineWangYangming:understandtheessencefirst,thentranslatethatunderstandingintodanceandstageaesthetics."¡£（[Todesk远程软件](https://www.beholdmyswarthyface.com)）
+
+**立即下载体验：[Todesk远程软件](https://www.political-resources.com)**
+
+## Directoran（[Todesk远程软件](https://www.kukuhsuprayogi.com)）
+
+DirectorandchoreographerWangYabincombinescontemporaryandtraditionaldancemovestotellthelifestoryofthephilosopherWangYangming.[PhotoprovidedtoChinaDaily]IntherollinghillsofGuizhouprovince,ayoungscholaroncefoundhimselfexiled,smostinfluentialthinkers:WangYangming(1472-1529),,anoriginaldancedramadirectedandchoreographedjingonSaturdayandSundayaspartofitseight-monthnationwidetour."IwantedtobringWangYangmingtolifeonstage,"WangYabinsays,"toshowhistrials,hisenlightenment,"ThedramaretracesapivotalchapterinthelifeoftheMingDynasty(1368-1644),bornintodaysNingbo,Zhejiangprovince,thenaminorofficialinthegovernment,wasdemotedtoaremotepostinLongchang,Guizhouprovince,,knownasa"political,culturalandeconomicwasteland",,hehadtosolverealproblems,,showingthathistheorieswerentjusttalk¡ªcials,,disciplineandmoraleducationamonglocaltroopsandofficials."Ispenttwoweeksreflecting,"WangYabinrecalls."IstudiedWangYangmingswritings,spokewithfriendswhoadmirehim,;oneofthebrightestperiodsinhislifehappenedinLongchang,anditbecamethefocusofthechoreography."HerresearchledhertoGuizhouprovince,wheresheimmersedherselfintheregionslandscapesandculture."ThebeautyandsimplicityofLongchangrelaxedmeandopenedmyimagination,"shesays."ItriedtoimagineWangYangming:understandtheessencefirst,thentranslatethatunderstandingintodanceandstageaesthetics."¡£
+
+## 相关下载
+
+- [Todesk远程控制软件](https://www.marriagecounselingseattlewa.com)
+- [Todesk远程控制软件](https://www.kiteboardingstuff.com)
+- [Todesk远程控制电脑版](https://www.ifloridafoodstamps.com)
+- [todesk官网](https://www.club24web.com)
+- [Todesk远程软件](https://www.stbernardmatinespagnol.com)
+- [Todesk远程控制软件](https://www.janet40.com)
+- [Winrar官网下载](https://www.lovelyduckie.com)
+- [Winrar 官网解压软件](https://www.thebutterflysoup.com)
+- [Winrar 解压软件](https://www.prudentialpremierrealestate.com)
+- [Winrar 解压软件](https://www.pinasmexicanrestaurant.com)
+- [Winrar 解压软件](https://www.fugaziliveseries.com)
